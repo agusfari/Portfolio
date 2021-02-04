@@ -4,4 +4,6 @@ Durante mi carrera profesional realicé un intercambio académico en la Universi
 
 Me considero una entusiasta del story-telling a través de las visualizaciones de datos, algo que me apasiona para poder democratizar el conocimiento y facilitarlo a diferentes destinatarios. Otro dato curioso es que amo los mapas y programé en Python más de 50 mapas en el último año con cruce de datos geográficos de diferentes sectores.
 
+Tengo experiencia dando presentaciones a diferentes organismos, el cual disfruto, así como las relaciones interpersonales.
+
 En mi tiempo libre me dedico a estudiar alemán y a terminar mi segunda carrera de Actuario en Economía, además de hacer pequeños proyectos freelance.</strong></p>
